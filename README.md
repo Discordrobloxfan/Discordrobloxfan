@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Discordrobloxfan
+- 👀 I’m interested in Discord coding Scripting
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on Discord severs i make bots
+- 📫 How to reach me Discord JOker King#0009 Email @aboudreau2011@gmail.com
